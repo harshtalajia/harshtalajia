@@ -1,1 +1,1 @@
-Hi, I’m Harsh Talajia, a Masters student Pursuing a degree in Applied Statistics & Analytics.
+Hi, I’m Harsh, a Masters student Pursuing a degree in Applied Statistics & Analytics.
